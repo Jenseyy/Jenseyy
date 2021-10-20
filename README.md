@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Jenseyy
+- 👀 I’m interested in you @TomDobbelsteen 
+- 🌱 I’m currently learning making websites
+- 📫 How to reach me: Jensschouten2006@gmail.com or 7197@pierson.nl
